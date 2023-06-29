@@ -1,3 +1,1 @@
-Fabrizio Rodriguez
-
-Yessica Silvera
+Fabrizio Rodriguez-Yessica Silvera-Fernanda Ojeda
