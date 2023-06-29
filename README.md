@@ -1,3 +1,0 @@
-Fabrizio Rodriguez
-
-Yessica Silvera
